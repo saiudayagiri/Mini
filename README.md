@@ -1,1 +1,1 @@
-# Mini
+# Mini Kanna
